@@ -5088,4 +5088,47 @@ pls
 <br>
 <br>
 <br>
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Poppins&pause=1000&width=435&lines=TURN+IT+OFF+OF+YOUR+MIND+AND+DONT+SCROL)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Poppins&pause=1000&width=435&lines=L+JUST+STOP+PLS)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Poppins&pause=1000&width=435&lines=TURN+IT+OFF+OF+YOUR+MIND+AND+DONT+SCROL)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Poppins&pause=1000&width=435&lines=L)](https://git.io/typing-svg)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Poppins&pause=1000&width=435&lines=JUST+STOP)](https://git.io/typing-svg)
